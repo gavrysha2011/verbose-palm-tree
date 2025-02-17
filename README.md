@@ -1,3 +1,3 @@
 
-hjjj# verbose-palm-tree
+hjjj# verbose-palm-tre
 
